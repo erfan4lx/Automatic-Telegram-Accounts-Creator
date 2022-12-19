@@ -1,7 +1,7 @@
 # Automatic-Telegram-Accounts-Creator
 Create any number of Telegram accounts fully automated
 
-Purchase it on my website : https://erfan4lx.com/product/Telegram-Members-Adder/
+Purchase it on my website : https://erfan4lx.com/product/Automatic-Telegram-Accounts-Creator/
 
 Features :
 
