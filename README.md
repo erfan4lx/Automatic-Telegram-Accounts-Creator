@@ -34,8 +34,7 @@ Contact with me to get the Password of Zip file on :
  Telegram : https://t.me/erfan4lx10
   
  Email : erfan4lx@gmail.com
- 
-Show full video on YouTube : https://youtu.be/zTCsO6F2h7M/
+
  
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
